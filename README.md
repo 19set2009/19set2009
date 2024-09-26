@@ -1,3 +1,4 @@
 - 🌱 KAREN FERREIRA LUGARDO
 - 🌱 1B
-![](https://tenor.com/qJpfghVYyfP.gif)
+
+![](https://media1.tenor.com/m/wPudCfjCrD8AAAAC/penguin-hello.gif)
